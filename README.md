@@ -2,6 +2,6 @@
 
 ✨ About Me ✨:
 
-- 🦉 Student at Kennesaw State Univeristy
+- 🦉 Studying at Kennesaw State University
 - 🔒 Information Security & Assurance Major
 - 👩‍🎓 Class of 2025
